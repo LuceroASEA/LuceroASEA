@@ -1,10 +1,6 @@
-- 👋 Hi, I’m @LuceroASEA
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-LuceroASEA/LuceroASEA is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![066C70DE-7669-4712-944E-16415CC41692](https://github.com/LuceroASEA/LuceroASEA/assets/134026088/e663b25d-e967-4eca-8449-c9a84abe6686)
+Betzy Chavez 
+Mother of 2 Boys 華
+LuceroASEA - ASEA 﫧
+Health & Wellness  
+1800661276.shareasea.com 
